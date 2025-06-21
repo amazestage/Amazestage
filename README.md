@@ -1,5 +1,4 @@
-> # ‹𝟹．⊂ about ᵃʸᵃⁿᵉ .
-> # ‎			‎	Greetings ! ⊃ ᯓ
+> # ‹𝟹．⊂ about ᵃʸᵃⁿᵉ .	‎	Greetings ! ⊃ ᯓ
 
 
 _**"		A journey we shall see   !		"**_
