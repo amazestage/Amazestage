@@ -1,11 +1,11 @@
 
 
 
-**"		A journey we shall see   !		"**
+_**"		A journey we shall see   !		"**_
 
-  **"		Don't forget of me   .		"**
+  _**"		Don't forget of me   .		"**_
 
   ![1000005611](https://github.com/user-attachments/assets/374d7a3a-f877-4488-a500-eae92ad10711)
 
 > [!NOTE]
-> _easily overwhelmed._
+> **easily overwhelmed.**
