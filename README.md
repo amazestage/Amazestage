@@ -7,5 +7,5 @@
 
   ![1000005611](https://github.com/user-attachments/assets/374d7a3a-f877-4488-a500-eae92ad10711)
 
-> [!IMPORTANT]
+> [!NOTE]
 > _easily overwhelmed._
