@@ -1,9 +1,10 @@
 > ## ‹𝟹．⊂ about ᵃʸᵃⁿᵉ .	‎	Greetings ! ⊃ ᯓ
-> #### _**"		A journey we shall see   !		"**_
-> #### _**"		Don't forget of me   .		"**_
-
-
-
+> #### _**"		a journey we shall see   !		"**_
+> #### _**"		don't forget of me   .		"**_
+. 
+. 
+. 
+. 
 > ##### _hiii! aya here :D I'll be a lot busy these days and would go online rarely. fred not! I'll come back once in a while to look around a bit._
 >
 > ##### _prays for the best to all ! love you guys <3_
